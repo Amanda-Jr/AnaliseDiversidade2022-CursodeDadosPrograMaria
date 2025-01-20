@@ -1,0 +1,1 @@
+# AnaliseDiversidade2022-CursodeDadosPrograMaria
